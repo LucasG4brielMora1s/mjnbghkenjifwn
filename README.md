@@ -1,4 +1,4 @@
-# Little Nightmares 1
+# Hollow Knight
 
 ### História Hollow Knight
 
